@@ -5,6 +5,4 @@
 - 📫 meu email: naateabisai@gmail.com
 
 
-<a href"https://www.linkedin.com/in/ abisai-naate-de-lacerda-andrade-227a72238">
 
-<a href"https://instagram.com/abisai__naate?igshid=OGQ5ZDc2ODk2ZA==">
